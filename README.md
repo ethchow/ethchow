@@ -2,8 +2,8 @@
 
 ## About Me 
 
-* I'm a Final Year Design Engineering student at Imperial College London
+* I'm a UI/UX Designer who has graduated from the MEng Design Engineering course at Imperial College
 
 Email: ethanchowyh@gmail.com 
 
-Portfolio: https://ethanchow.myportfolio.com
+Portfolio: https://ethanchow.co.uk
