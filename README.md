@@ -2,7 +2,7 @@
 
 ## About Me 
 
-* I'm a UI/UX Designer who has graduated from the MEng Design Engineering course at Imperial College
+* I'm a AI Product Designer who currently works at IBM, while freelancing videography and storytelling workshops for established creators and brands within London. 
 
 Email: ethanchowyh@gmail.com 
 
